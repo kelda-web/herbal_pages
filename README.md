@@ -1,1 +1,1 @@
-# herbal_pages
+# The Herbal
